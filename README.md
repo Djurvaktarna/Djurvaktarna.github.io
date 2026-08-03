@@ -63,7 +63,7 @@ ________________________________________________________________________________
 ___________________________________________________________________________________________________________
 
 
-Kommer du vara bortrest eller ta en paus i 1-4 veckor blir summan troligtvis högre. (Om ni vill att vi vaktar ditt djur i mer än en månad så kan ni chatta med oss enskilt.)
+Kommer du vara bortrest eller ta en paus i 1-4 veckor blir summan troligtvis högre. (Om ni vill att vi vaktar ditt djur i mer än en månad så kan ni kontakta oss direkt.)
 
 ___________________________________________________________________________________________________________
 Har du fler frågor eller funderingar så är det bara att kontakta oss och fråga på!
