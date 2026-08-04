@@ -77,9 +77,6 @@ Kontakta oss.📞
 
 Ni kan också följa våran kanal på WhatsApp! Den heter: Djurvaktarna
 
-<img width="1024" height="1007" alt="Untitled_10_01_39" src="https://github.com/user-attachments/assets/bd0bd0e2-de59-49fc-83d2-eaf917da15e0" />
-
-
 
 
 
